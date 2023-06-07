@@ -26,6 +26,5 @@ Si estás buscando un desarrollador dedicado, motivado y con habilidades tanto e
 
 **Aquí puedes contactarme:**
 - Correo: apaterninar@gmail.com
-
-[Enlace a mi perfil de LinkedIn](https://www.linkedin.com/in/andrés-jose-paternina-rubiano-557309229)
+- [Enlace a mi perfil de LinkedIn](https://www.linkedin.com/in/andrés-jose-paternina-rubiano-557309229)
 
